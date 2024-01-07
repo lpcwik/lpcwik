@@ -1,4 +1,5 @@
 ### Haaiii :3
+About me:
 - silly  
 - 4 brain cells 🧠
 - Criminal in 37 countries 😅
