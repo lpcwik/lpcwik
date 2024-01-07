@@ -1,4 +1,7 @@
-### Hi there 👋
+### Haaiii :3
+- silly  
+- 4 brain cells 🧠
+- Criminal in 37 countries 😅
 
 <!--
 **lpcwik/lpcwik** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
